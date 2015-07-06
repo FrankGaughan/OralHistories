@@ -1,5 +1,5 @@
 
-Cravens, Florence, and Edith L. Crawford. “[I Was Born in Austin, Texas].” Manuscript/mixed material,”Pioneer Story.” April 11, 1938. http://www.loc.gov/item/wpalh001194/.
+Cravens, Florence, and Edith L. Crawford. “[I Was Born in Austin, Texas].” Manuscript/mixed material. Pioneer Story. April 11, 1938. http://www.loc.gov/item/wpalh001194/.
 
 I was born in Austin Texas, in 1874, and lived there until I was twelve years old, I have lived in the state of New Mexico, for fifty one years, and in Lincoln County thirty three years. 
 
