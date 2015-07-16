@@ -1,5 +1,4 @@
-Urruty, Jean. “Oral History with 74 Year Old White Male, Mesa County City, Colorado. (Transcript).” Manuscript/mixed material, 1978. http://www.loc.gov/item/afccal000461/.  (11 pages, excerpts p.3-4)
-Link to audio file: http://www.loc.gov/item/afccal000072
+Urruty, Jean. “Oral History with 74 Year Old White Male, Mesa County City, Colorado. (Transcript).” Manuscript/mixed material, 1978. Center for Applied Linguistics collection (AFC 1986/022), American Folklife Center, Library of Congress. pp.1-11, excerpts taken from pp.3-4.  http://www.loc.gov/item/afccal000461/. Link to audio file: http://www.loc.gov/item/afccal000072
 
 
 INT:  Did you hunt a lot? 
